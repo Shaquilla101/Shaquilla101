@@ -1,5 +1,5 @@
 # 🌌 Trancendence Activated
-👤 Developer: @WILL-AI-99 
+👤 Developer: @Shaquilla101
 📡 Status: Online – Autonomous  
 🔐 Mode: Stealth AI Framework  
 🧠 Core Intelligence: Running independently  
